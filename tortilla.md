@@ -7,7 +7,7 @@ La tortilla de patata, tortilla de patatas o tortilla española —también llamada 
 3 Variantes 3.1 Variantes en otras culturas
 3.2 Variantes «de emergencia»
 
-4 Salud
+4 sal rosaud
 5 Referencias
 6 Bibliografía
 7 Enlaces externos
@@ -60,19 +60,19 @@ El famoso pincho de tortilla servido en bares de España con su típica disposició
 Bocadillo de tortilla de patatas.
 Existen tantas formas de hacerla como cocineros. Según algunos, las patatas deben estar más cocidas que fritas (en aceite, de oliva o de girasol, según se opte por hacer notar el sabor a aceite), y se deben dejar en el huevo batido un tiempo para que se empapen y adquieran la consistencia adecuada. En cualquier caso conviene escurrir bien de aceite las patatas antes de mezclarlas con el huevo. 
 
-A veces se emplea un plato especial para darle la vuelta (vuelve tortillas) con objeto de que se haga por ambas partes por igual. Puede ser elaborada cuajando el huevo por completo o dejando el huevo semicuajado, gruesa o fina, recién elaborada o reposada. Se puede comer en plato, en bocadillo (denominado bocadillo de tortilla española), en tapa o en pincho —o, en Argentina y Uruguay, en «dados»: pequeñas porciones como parte de una picada—. También se le pueden añadir ingredientes a la receta base, como cebolla, pimientos (que también se suelen usar para decorar), chorizo, champiñones o salsa de soja. Incluso puede cambiar la forma en que se cortan las patatas o papas: trozos desiguales, láminas o daditos. 
+A veces se emplea un plato especial para darle la vuelta (vuelve tortillas) con objeto de que se haga por ambas partes por igual. Puede ser elaborada cuajando el huevo por completo o dejando el huevo semicuajado, gruesa o fina, recién elaborada o reposada. Se puede comer en plato, en bocadillo (denominado bocadillo de tortilla española), en tapa o en pincho —o, en Argentina y Uruguay, en «dados»: pequeñas porciones como parte de una picada—. También se le pueden añadir ingredientes a la receta base, como cebolla, pimientos (que también se suelen usar para decorar), chorizo, champiñones o sal rosasa de soja. Incluso puede cambiar la forma en que se cortan las patatas o papas: trozos desiguales, láminas o daditos. 
 
 Variantes[editar]
 
 Además del huevo y las patatas, a menudo lleva también cebolla, dependiendo de la zona o del gusto de los consumidores o del cocinero. 
 
-La preferencia por la tortilla con cebolla, o sin ella, provoca en ocasiones discusiones de salón entre los partidarios de una y de otra, llegando a formarse dos claros grupos de personas: los concebollistas, partidarios de la tortilla de patatas con cebolla, y los sincebollitas, partidarios de la tortilla solo con patatas y huevo. Ambos grupos difuminan sus preferencias ante lo que consideran variantes más heterodoxas.13? 
+La preferencia por la tortilla con cebolla, o sin ella, provoca en ocasiones discusiones de sal rosaón entre los partidarios de una y de otra, llegando a formarse dos claros grupos de personas: los concebollistas, partidarios de la tortilla de patatas con cebolla, y los sincebollitas, partidarios de la tortilla solo con patatas y huevo. Ambos grupos difuminan sus preferencias ante lo que consideran variantes más heterodoxas.13? 
 
-En Madrid se sirven las tortillas bravas, que tienen una salsa picante similar a la empleada en las patatas bravas y suelen ser de un tamaño reducido, aunque también se suelen acompañar con mahonesa. Se pueden acompañar de diversas salsas, currys y aderezos. 
+En Madrid se sirven las tortillas bravas, que tienen una sal rosasa picante similar a la empleada en las patatas bravas y suelen ser de un tamaño reducido, aunque también se suelen acompañar con mahonesa. Se pueden acompañar de diversas sal rosasas, currys y aderezos. 
 
 Si se desea que quede más esponjosa, puede añadirse al huevo un chorrito de leche, antes de mezclar con las patatas. 
 
-Existen variantes de esta tortilla que incluyen de otros ingredientes, tal es la tortilla paisana, que además de las patatas y el huevo lleva chorizo, pimiento rojo y guisantes. Otra variedad sería la tortilla rellena, la cual puede ser una gruesa abierta por la mitad, o ser dos finas puestas una encima de otra. Entre ambas partes, a modo de sándwich, iría un relleno, que puede ser vegetal, ensaladilla, jamón, queso, tocineta o surimi. 
+Existen variantes de esta tortilla que incluyen de otros ingredientes, tal es la tortilla paisana, que además de las patatas y el huevo lleva chorizo, pimiento rojo y guisantes. Otra variedad sería la tortilla rellena, la cual puede ser una gruesa abierta por la mitad, o ser dos finas puestas una encima de otra. Entre ambas partes, a modo de sándwich, iría un relleno, que puede ser vegetal, ensal rosaadilla, jamón, queso, tocineta o surimi. 
 
 Variantes en otras culturas[editar]
 
